@@ -9,5 +9,5 @@
 <h2><a href="https://t2m.io/2284401">Betmarino Giriş İçin Tıklayınız ✅</a></h2>
 <p>Sektörün en güvenilir sitelerinde şansınızı deneyin ve kazanın!</p>
 
-<h3>Betmarino - Betmarino - Betmarino</h3>
+<h3>Betmarino - Betmarino - Betmarino.</h3>
 <p>Hemen giriş yapın, oyun keyfini doruklarda yaşayın!</p>
